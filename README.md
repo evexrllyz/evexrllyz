@@ -1,4 +1,3 @@
-## ꒰ᐢ. .ᐢ꒱
-![e4923984b9906137fced3a79e70e3498](https://github.com/user-attachments/assets/fe38b817-8de9-4abc-b166-a519dfdc138b)
-
+## ᜊ𐔌๑ ´  ˔  ` ꒱੭
+<img width="426" height="49" alt="9wyhii" src="https://github.com/user-attachments/assets/45f33f2d-8d35-490d-96f2-e4dbcb049b87" />
 
