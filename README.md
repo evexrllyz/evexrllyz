@@ -5,7 +5,7 @@
 
 ---
 
-## creds to:
+creds to:
 
 neosprites on tumblr for smc stamp
 
